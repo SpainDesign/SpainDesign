@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SpainDesign
+- 👀 I’m interested in all things Design.
+- 🌱 I’m currently learning to develop websites.
+- 💞️ I’m looking to collaborate on website development. 
+- 😄 Pronouns: He/Him
